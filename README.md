@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate MNC for full stack intern or full time devops.
 - 📫 How to reach me -jyothisathishchintha@gmail.com
 - ❤️ Hobbies Watching Manga/Anime, Surfing Youtube
-- 
+
 
 
 <!---
